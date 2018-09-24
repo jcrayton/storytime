@@ -1,4 +1,3 @@
-Chapter2.md
 Chapter 2: A Case Changed However
 All of a sudden, the logical seal saw a fox out of the corner of his eye.
 The logical seal had never seen a fox before, and could not make sense of this animal.
