@@ -1,3 +1,4 @@
+Chapter 1: The Seal will be Logical
 The seal in the circus is very logical.
 Its trainer gives it logic problems to solve for the audience.
 The audience loves it because most seals aren't good at logic.
