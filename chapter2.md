@@ -5,3 +5,4 @@ He looked nothing like the seal, yet the seal only ever saw other seals and huma
 For his whole life, everything had made sense, but now the seal wondered about all the things he knew nothing about.
 Could there be other creatures unlike him?
 Could he be friends with these creatures?
+Does he have any friends to start with?
